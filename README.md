@@ -1,2 +1,0 @@
-# Massiv_hw
-LINK
